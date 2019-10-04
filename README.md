@@ -1,1 +1,1 @@
-# werewolf-mystery.github.io
+# cbct.xyz
